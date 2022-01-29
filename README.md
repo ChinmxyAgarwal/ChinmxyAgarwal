@@ -1,0 +1,1 @@
+Don't follow this account. This is soley for the purpose of getting new files. Even though I do actually do coding and create programs, but sorry I will not share them publically. This account is just for getting new file types and programmes. Now that you've read this Bye👋.
